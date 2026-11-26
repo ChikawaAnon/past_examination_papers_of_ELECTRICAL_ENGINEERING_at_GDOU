@@ -1,0 +1,2 @@
+# past_examination_papers_of_ELECTRICAL_ENGINEERING_at_GDOU
+广东海洋大学电气工程及其自动化专业的大部分往年专业试卷
